@@ -12,5 +12,5 @@ Meu nome é Gabrielly Gomes
 
 - instagram: @gabiygomess
 
-- ![]
+![](https://media1.tenor.com/m/sj4j9HT4QP4AAAAC/lana-del-rey-gun.gif)
 
